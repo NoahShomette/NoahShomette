@@ -1,1 +1,1 @@
-Professional Web Developer and Indie Game Dev
+Indie Game Dev
